@@ -2,7 +2,7 @@
 - 15 years old.
 - Nerd and proud of it.
 - 1° D Colégio Visconde de Guarapuava.
-- ![https://media1.tenor.com/m/rEg8BNZeuVgAAAAC/jjk-jujutsu-kaisen.gif](JUJUTSU KAISEN BEST OF ALL)
+- ![JUJUTSU KAISEN BEST OF ALL](https://media1.tenor.com/m/rEg8BNZeuVgAAAAC/jjk-jujutsu-kaisen.gif)
 
 <!--
 **VICTORSIQUEIRA-14/VICTORSIQUEIRA-14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
